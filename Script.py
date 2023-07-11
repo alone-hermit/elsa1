@@ -302,7 +302,7 @@ Elsa
 
 
 ╔════ ᴊᴏɪɴ ᴡɪᴛʜ ᴜs ════╗
-▫️<a href=https://t.me/cinemala_com1> ᴄʜᴀɴɴᴇʟ </a>
+▫️<a href=https://t.me/MM_DISCUSSIONS> ᴄʜᴀɴɴᴇʟ </a>
 
 ▫️<a href=https://t.me/Elsasupportgp> sᴜᴘᴘᴏʀᴛ ɢʀᴏᴜᴘ </a>
 ╚════ ᴊᴏɪɴ ᴡɪᴛʜ ᴜs ════╝</b>"""
